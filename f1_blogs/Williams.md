@@ -4,7 +4,7 @@
 The testing days are over and [Formula 1](https://www.gpblog.com/en/race-classes/formula-1) is in the race week of the [Bahrain Grand Prix.](https://www.gpblog.com/en/grandsprix/bahrain-grand-prix) Time to look at all the teams. [Haas F1](https://www.gpblog.com/en/f1-teams/haas-f1) was analyzed first and [Alfa Romeo was up shortly after](https://www.gpfans.com/nl/f1-nieuws/77755/vettel-krijgt-van-aston-martin-simulator-voor-thuis/) and now it's time for the number eight of 2021, [Williams.](https://www.gpblog.com/en/f1-teams/williams)
 
 
-### __2021 F1 season__
+**__2021 F1 season__**
 ------
 In 2021, [George Russell](https://www.gpblog.com/en/f1-drivers/george-russell) and [Nicholas Latifi](https://www.gpblog.com/en/f1-drivers/nicholas-latifi) remained the drivers at Williams. It was the second year of the two young drivers, and 2020 CEO [Jost Capito](https://www.gpblog.com/en/team-bosses/jost-capito) continued to have faith in the two drivers who had not scored any points for Williams at that point. Fortunately for the Grove-based team, that statistic changed in 2021. Simon Roberts was fired as team principal in 2021 and Capito took on this role in addition to the CEO role and has since been assisted by Francois-Xavier Demaison and the team seems to be on the rise.
 
