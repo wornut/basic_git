@@ -12,27 +12,26 @@ Then in August of 2021, the team finally scored points again in the chaotic Hung
 
 In total, Latifi managed to score points twice and Russell a total of four times. In total, this yielded 23 points and an eighth place among the constructors.
 
-##### ___READ MORE___
+**_READ MORE_**
 
-![alt text](https://files.gpblog.com/news/2022/03/15/wc_97924f931950dd651e64d2630c3782c0f21deb23.jpg "Logo Title Text 1")
-
-*[Verstappen compared to Schumacher and Senna: 'Also because of their misbehavior'](https://www.gpblog.com/en/news/106239/verstappen-compared-to-schumacher-and-senna-also-because-of-their-misbehavior.html?campname=highlighted-content&camplink=inarticle3)*
+![alt text](https://files.gpblog.com/news/2022/03/15/wc_97924f931950dd651e64d2630c3782c0f21deb23.jpg "to other article thumb01")|*[Verstappen compared to Schumacher and Senna: 'Also because of their misbehavior'](https://www.gpblog.com/en/news/106239/verstappen-compared-to-schumacher-and-senna-also-because-of-their-misbehavior.html?campname=highlighted-content&camplink=inarticle3)*|
+|---|---|
     
 
-
-### __Winter Tests__
+**__Winter Tests__**
 ------
 A big motivator for the team, Russell, has since left Williams for an opportunity with top team Mercedes. Finding a replacement for a talent like Russell was never an easy task and eventually the team settled on [Alexander Albon.](https://www.gpblog.com/en/f1-drivers/alexander-albon) The Thai was without a seat after he was replaced by [Sergio Perez](https://www.gpblog.com/en/f1-drivers/sergio-perez) at [Red Bull Racing](https://www.gpblog.com/en/f1-teams/red-bull-racing) in late 2020.
 
 Williams covered a total of over 3,000 kilometers in the Barcelona and Bahrain winter tests. This makes the team a good mid-tier team. It leaves big teams like Alpine and [McLaren](https://www.gpblog.com/en/f1-teams/mclaren) behind, something they will be satisfied with in Grove.
-##### ___READ MORE___
-![alt text](https://files.gpblog.com/news/2022/03/15/wc_99e6d395033d445635588bb9fa849dbaba6ae845.jpg "Logo Title Text 1")
 
-*[F1 launches documentary on title fight between Hamilton and Verstappen](https://www.gpblog.com/en/news/106235/f1-launches-documentary-on-title-fight-between-hamilton-and-verstappen.html?campname=highlighted-content&camplink=inarticle5)*
+**_READ MORE_**
+
+![alt text](https://files.gpblog.com/news/2022/03/15/wc_99e6d395033d445635588bb9fa849dbaba6ae845.jpg "Logo Title Text 1")|*[F1 launches documentary on title fight between Hamilton and Verstappen](https://www.gpblog.com/en/news/106235/f1-launches-documentary-on-title-fight-between-hamilton-and-verstappen.html?campname=highlighted-content&camplink=inarticle5)*|
+|---|---|
 
 The only real blemish on Williams' winter tests was Latifi's car, which went up in flames on the second day of testing in Bahrain. The damage was so extensive that the team could only drive twelve laps that day. Otherwise, the team was continuously in the top-ten in terms of times, except for the last day.
 
-### __Williams in 2022__
+**__Williams in 2022__**
 ------
 In 2022, Williams will want to build on the small successes achieved in 2021. The team needs to put elimination in Q3 of qualifying behind them for good and try to get into Q1 as often as possible. Although that will be less easy now that 'Mr. Saturday' Russell has left for Mercedes.
 
@@ -40,7 +39,7 @@ Scoring points in four different Grands Prix as the team did in 2021 will not be
 
 Latifi was defeated twice over by Russell in 2022. Especially in qualifying, the Canadian had little to contribute. It was 20-2 in favor of the Brit. Against Albon, Latifi gets new opportunities and he will have to do his best not to have such a bad record behind his name again.
 
-### __Expectations__
+**__Expectations__**
 ------
 Williams may just become the surprise of 2022. The team is on the rise with the new management led by Capito. Money should also not be a problem anymore and except for one problem the car seemed pretty reliable during the winter tests.
 
@@ -53,7 +52,8 @@ _Read the previously published team analyses here:_
 -Alfa Romeo
 
 -Haas F1
-##### ___READ MORE___
-![alt text](https://files.gpblog.com/news/2022/03/15/wc_7dd24c0a27eb514cd8c6875a70e486ef73a2118a.jpg "Logo Title Text 1")
 
-['Qatar replaces Russia, in 2023 third Grand Prix in the United States'](https://www.gpblog.com/en/news/106255/qatar-replaces-russia-in-2023-third-grand-prix-in-the-united-states.html?campname=highlighted-content&camplink=onderaan)
+**_READ MORE_**
+
+![alt text](https://files.gpblog.com/news/2022/03/15/wc_7dd24c0a27eb514cd8c6875a70e486ef73a2118a.jpg "Logo Title Text 1")|['Qatar replaces Russia, in 2023 third Grand Prix in the United States'](https://www.gpblog.com/en/news/106255/qatar-replaces-russia-in-2023-third-grand-prix-in-the-united-states.html?campname=highlighted-content&camplink=onderaan)|
+|---|---|
